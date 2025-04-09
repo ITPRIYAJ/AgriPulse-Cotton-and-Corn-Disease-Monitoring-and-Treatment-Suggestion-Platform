@@ -1,0 +1,1 @@
+# AgriPulse-Cotton-and-Corn-Disease-Monitoring-and-Treatment-Suggestion-Platform
